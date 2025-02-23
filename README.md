@@ -1,1 +1,1 @@
-# sw-
+# sw-academic-award
